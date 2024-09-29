@@ -1,1 +1,1 @@
-# diverses
+# diverse code-schnipsel
