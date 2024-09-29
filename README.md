@@ -1,1 +1,2 @@
-# diverse code-schnipsel
+# diverse code-schnipsel aus der Hölle 
+# mal gucken....
